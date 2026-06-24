@@ -1,7 +1,7 @@
 <div align="center">
 
 # **ARCTICA or ARC**
-### ` they/any prns ` . ` 6teen ` . `  int with care `
+### ` they/any prns ` . ` 6teen ` . ` int with care `
 <div>
 <a href="https://arctica.straw.page">
   <img src="https://img.shields.io/badge/STRAWPAGE-ffe1a8?style=for-the-badge">
