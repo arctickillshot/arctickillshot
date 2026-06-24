@@ -25,7 +25,7 @@
 ### bfyi <br>
 ✦ i am plural. not DID because i only meet most of the qualifiers but memory gaps are somewhat common. if there's "sys" in the name, that's who's fronting and they proabbly want to be called by name <br>
 ✦ still going unmedicated :/ so i can be affected by things like depression, anxiety, paranoia, or excess energy. it will definitely show <br>
-✦ dookie memory, i will forget people especially with switches. i'll kinda automatically gravitate to blue names but i might not remember who u are <br>
+✦ dookie memory, i will forget people especially with switches. i'll kinda automatically gravitate to ppl on my friends list but i might not remember who u are <br>
 ✦ horrible mood swings. i can go from super happy to yelling in anger in an instant with literally no warning. usually its not that bad but freqency/intensity depends on day and kinda on front. <br>
 
 <br>
